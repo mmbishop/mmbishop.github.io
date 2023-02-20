@@ -1,2 +1,0 @@
-# mmbishop.github.io
-
